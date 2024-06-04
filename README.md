@@ -16,6 +16,6 @@
 
 📫 How to reach me: (https://www.linkedin.com/in/musa-wasiu/), (wasiu.musa09@gmail.com)
 
-😄 Pronouns: Her/His
+😄 Pronouns: He/Him
 
 ⚡ Fun fact: I enjoy solving puzzles and often apply the same problem-solving skills to data analysis challenges.
