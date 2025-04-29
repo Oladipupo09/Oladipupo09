@@ -14,7 +14,7 @@
 
 💬 Ask me about data analysis, visualization techniques, and how to derive actionable insights from complex datasets.
 
-📫 How to reach me: (https://www.linkedin.com/in/musa-wasiu/), (wasiu.musa09@gmail.com)
+📫 How to reach me: [Linkedin](https://www.linkedin.com/in/musa-wasiu/), [Gmail](wasiu.musa09@gmail.com)
 
 😄 Pronouns: He/Him
 
